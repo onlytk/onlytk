@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @onlytk
-- 📫 How to reach me contact@onlytk.xyz
+- 📫 How to reach me hello@onlytk.xyz
